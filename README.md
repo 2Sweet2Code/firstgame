@@ -1,2 +1,1 @@
-# previousprojects
-Everything i have done and keep doing
+my first attempt ever lol
